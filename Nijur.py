@@ -1,1 +1,0 @@
-nijor gola hoi 
